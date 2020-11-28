@@ -1,0 +1,2 @@
+# ZabijamBoLubie.pl
+QR
